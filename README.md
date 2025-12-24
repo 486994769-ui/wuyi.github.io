@@ -1,1 +1,1 @@
-# wuyi.github.io
+# wu
